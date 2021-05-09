@@ -1,5 +1,5 @@
 ---
-title: 'ha1f.com: A don Federation Company' featured_image: '/images/gohugo-default-sample-hero-image.jpg'
+title: 'ha1f.com: XIΞLΞVAN SOLUTIONS' featured_image: '/images/gohugo-default-sample-hero-image.jpg'
 description: "ha1f.com is under construction."
 ---
 
