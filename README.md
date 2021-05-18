@@ -4,4 +4,4 @@
 that shit or itll become a federal case and youll get screwed for distribution, otherwise its a good deal cuz your
 practically payin $10 a dub, allowing you to make $280 on it"
 
-T®ᶜᵒᵐ don Federation👁 London https://ţ.com @donpablonow c@ţ.com
+👁 XIΞLΞVAN SOLUTIONS / https://xı.com
